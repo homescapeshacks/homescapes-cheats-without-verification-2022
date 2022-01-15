@@ -2,7 +2,7 @@
 
 [***Homescapes HACK - UNLIMITED Stars &Coins Generator! CLICK HERE!***](https://barlog.org/h)
 
-[Homescapes Cheats](https://user-images.githubusercontent.com/97796167/149626487-92c5f43b-36f6-43ea-ba21-9f9223f68787.png)
+![Homescapes Cheats](https://user-images.githubusercontent.com/97796167/149626487-92c5f43b-36f6-43ea-ba21-9f9223f68787.png)
 
 If you are a newbie or a pro who loves to play games on your phone and iPad, Homescapes is the perfect app for you. It is one of the top free apps that you can download in the App Store and Google Play Store.
 
