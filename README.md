@@ -1,6 +1,6 @@
 ***Homescapes Cheats, Tips & Tricks: A Guide For Newbies & Pros***
 
-[***Homescapes HACK - UNLIMITED Stars &Coins Generator! CLICK HERE!***](https://barlog.org/h)
+[***Homescapes HACK - UNLIMITED Stars & Coins Generator! CLICK HERE!***](https://barlog.org/h)
 
 ![Homescapes Cheats](https://user-images.githubusercontent.com/97796167/149626487-92c5f43b-36f6-43ea-ba21-9f9223f68787.png)
 
@@ -8,7 +8,7 @@ If you are a newbie or a pro who loves to play games on your phone and iPad, Hom
 
 When you get tired of playing or just want a break from the game, it’s easy to feel like you can’t take a break. So, you find yourself sitting at the TV instead. But, not only do you have to deal with being glued to the TV, but you also have to deal with having nothing to do. This is the problem that I’m about to share with you. And, I’m going to share it in a way that will not only help you overcome this issue, but also make sure you never feel this way again.
 
-[***Homescapes HACK - UNLIMITED Stars &Coins Generator! CLICK HERE!***](https://barlog.org/h)
+[***Homescapes HACK - UNLIMITED Stars & Coins Generator! CLICK HERE!***](https://barlog.org/h)
 
 Here you will find the best Homescapes cheats, tips, and tricks.
 
